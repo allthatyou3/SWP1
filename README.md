@@ -1,2 +1,2 @@
-20252397    Ryu
+20252397Ryu
 kookmin Univ. SW
