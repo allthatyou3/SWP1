@@ -1,2 +1,2 @@
-2025 Ryu Hyeonmin
+20252397 Ryu
 kookmin Univ. SW
